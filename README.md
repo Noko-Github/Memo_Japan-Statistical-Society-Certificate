@@ -1,0 +1,1 @@
+# Memo_Japan-Statistical-Society-Certificate
